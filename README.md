@@ -4,6 +4,8 @@
 
 Hack your bookshelf—scan, sort & unlock secret easter eggs in this pixel-perfect throwback.
 
+Switch to **Dark Mode** for the full ✨vibe✨ – trust me, it hits different ✨📚
+
 𝔈𝔯𝔯𝔬𝔯: "𝔅𝔬𝔯𝔦𝔫𝔤 𝔫𝔬𝔱 𝔣𝔬𝔲𝔫𝔡" // 𝔓𝔯𝔢𝔰𝔰 [o:o] 𝔱𝔬 𝔳𝔦𝔟𝔢 🔥"
 
 💮💮
