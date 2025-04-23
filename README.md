@@ -19,4 +19,4 @@ Switch to **Dark Mode** for the full ✨vibe✨ – trust me, it hits different 
 
 💮💮
 
-**REACH ME OUT📧:"aeylanaseer@gmail.com"**
+**REACH ME OUT ON DISCORD 👾:"user6790.h"**
